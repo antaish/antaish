@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @antaish
+- I’m interested in art,coding,programming and designing.
+- 🌱 I’m currently learning hacking.
